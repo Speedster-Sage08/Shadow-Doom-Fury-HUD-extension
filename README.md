@@ -1,1 +1,1 @@
-# Shadow-X-Terios-Reborn-HUD-extension
+# Shadow X Terios Reborn HUD extension
