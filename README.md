@@ -1,1 +1,1 @@
-# Shadow-Doom-Fury-HUD-extension
+# Shadow-X-Terios-Reborn-HUD-extension
